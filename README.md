@@ -3,11 +3,11 @@
 
 - 🌱 I’m currently exploring **various technologies.**
 
-- 👨‍💻 All of my projects are available at [https://snehasarkar1602.github.io/Sneha-Sarkar-Portfolio.github.io/](https://snehasarkar1602.github.io/Sneha-Sarkar-Portfolio.github.io/)
+- 👨‍💻 Get to know more about me with my Dev Portfolio [https://snehasarkar1602.github.io/Sneha-Sarkar-Portfolio.github.io/](https://snehasarkar1602.github.io/Sneha-Sarkar-Portfolio.github.io/)
 
 - 📫 How to reach me **snehasarkar7661@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1sbam7lE3iAlyBl4cCeEsvPCFX3k8j8Du4qaPJ-2lKUE/edit?usp=sharing](https://docs.google.com/document/d/1sbam7lE3iAlyBl4cCeEsvPCFX3k8j8Du4qaPJ-2lKUE/edit?usp=sharing)
+- 📄 Know about my technical skills and academics [https://docs.google.com/document/d/1sbam7lE3iAlyBl4cCeEsvPCFX3k8j8Du4qaPJ-2lKUE/edit?usp=sharing](https://docs.google.com/document/d/1sbam7lE3iAlyBl4cCeEsvPCFX3k8j8Du4qaPJ-2lKUE/edit?usp=sharing)
 
 - ⚡ Fun fact **I love to draw/paint and cook.**
 
